@@ -8,4 +8,5 @@ and I **LOVE** Marvel Movies!
 I just got into Anime and I love it. However, it's very addicting :smiling_imp:. 
 Unfortunately, I'm not that creative :pensive:, but I hope that by time the semester ends I would have tapped into my inner creative being	:smile:	:grin:
 
-![hunterxhunter](https://user-images.githubusercontent.com/98140123/150465971-93d7662e-f6ed-44d9-b167-a8bab9111843.png) 
+![hunterxhunter](https://user-images.githubusercontent.com/98140123/150465971-93d7662e-f6ed-44d9-b167-a8bab9111843.png) ![gif](https://user-images.githubusercontent.com/98140123/150468077-4834feef-c0f3-434f-b441-3f8aefecb043.gif)
+
