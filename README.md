@@ -1,1 +1,11 @@
-# webdev
+# Webpage Development and Design
+I'm *Lori* and I'm from the Caribbean:jamaica:.
+I'm currently majoring in IT :relieved:
+and I **LOVE** Marvel Movies!
+
+
+
+I just got into Anime and I love it. However, it's very addicting :smiling_imp:. 
+Unfortunately, I'm not that creative :pensive:, but I hope that by time the semester ends I would have tapped into my inner creative being	:smile:	:grin:
+
+![hunterxhunter](https://user-images.githubusercontent.com/98140123/150465971-93d7662e-f6ed-44d9-b167-a8bab9111843.png) 
