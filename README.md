@@ -1,4 +1,4 @@
-# Webpage Development and Design
+# Lori-A
 I'm *Lori* and I'm from the Caribbean:jamaica:.
 I'm currently majoring in IT :relieved:
 and I **LOVE** Marvel Movies!
