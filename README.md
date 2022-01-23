@@ -1,8 +1,9 @@
 # Lori-A :wink:
 I'm *Lori* and I'm from the Caribbean:jamaica:.
 I'm currently majoring in IT :relieved:
-and I **LOVE** Marvel Movies!
-
+- **I LOVE Marvel Movies!:satisfied:**
+- **I'm always on YouTube!:sweat_smile:**
+- **I love learning new things!	:thinking:**
 
 
 I just got into Anime and I love it. However, it's very addicting :smiling_imp:. 
