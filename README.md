@@ -1,4 +1,4 @@
-# Lori-A
+# Lori-A :wink:
 I'm *Lori* and I'm from the Caribbean:jamaica:.
 I'm currently majoring in IT :relieved:
 and I **LOVE** Marvel Movies!
